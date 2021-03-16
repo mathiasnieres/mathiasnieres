@@ -1,5 +1,5 @@
 Hola 🙋🏾‍♂️<br>
-Estudiante de sistemas con 8 años de experiencia de desarrollo en Sistemas JAVA JEE. 🧑‍💻 <br>
+Soy un estudiante de sistemas con 8 años de experiencia de desarrollo en Sistemas JAVA JEE. 🧑‍💻 <br>
 Buscando nuevos retos que me permitan mejorar cada día en mi carrera profesional. 👀 <br>
 Me caracterizo por ser una persona proactiva, ordenada, orientada a cumplir los objetivos en tiempo y forma, con ganas de aprender y que gusta de trabajar en un equipo con el mismo ADN. 
 
