@@ -1,5 +1,5 @@
 Hola 🙋🏾‍♂️<br>
-Soy Licencia en Informática de la Universidad de la Empresa con mas de 10 años de experiencia de desarrollo en Sistemas JAVA JEE. 🧑‍💻 <br>
+Soy Licenciado en Informática de la Universidad de la Empresa con mas de 10 años de experiencia de desarrollo en Sistemas JAVA JEE. 🧑‍💻 <br>
 Buscando nuevos retos que me permitan mejorar cada día en mi carrera profesional. 👀 <br>
 Me caracterizo por ser una persona proactiva, ordenada, orientada a cumplir los objetivos en tiempo y forma, con ganas de aprender y que gusta de trabajar en un equipo con el mismo ADN. 
 
